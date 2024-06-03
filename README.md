@@ -5,3 +5,9 @@
  - MIMO;
  - [Alura](https://www.alura.com.br);
 
+   ## Fale comigo:
+
+   gustaplayer4@gmail.com
+
+   
+![](https://tenor.com/pt-BR/view/miguel-falabella-grateful-thank-you-thanks-gif-10842701)
