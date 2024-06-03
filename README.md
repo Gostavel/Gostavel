@@ -10,4 +10,5 @@
    gustaplayer4@gmail.com
 
    
-![](https://tenor.com/pt-BR/view/miguel-falabella-grateful-thank-you-thanks-gif-10842701)
+![](![image](https://github.com/Gostavel/Gostavel/assets/171518036/e6a02c8a-b02c-4932-b0d4-4baebdff9b03)
+)
