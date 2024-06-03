@@ -10,4 +10,4 @@
    gustaplayer4@gmail.com
 
    
-![](https://tenor.com/TEQr.gif)
+![](https://tenor.com/pt-BR/view/miguel-falabella-grateful-thank-you-thanks-gif-10842701)
